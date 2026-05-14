@@ -1,4 +1,4 @@
-#  
+#  bedwars Scripts underground offers the most advanced bedwars Script, with no cooldown and infinite resources. Perfect for dominating any match.
 
 
 
